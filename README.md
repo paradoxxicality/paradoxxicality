@@ -1,0 +1,2 @@
+# paradoxxicality
+ github profile config,
